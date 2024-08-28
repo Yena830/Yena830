@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yena830
 - 👀 I’m interested in everything cute! I want to learn coding more.
 - 🌱 I’m currently learning Java and Python by myself.
-- 💞️ I have a cat named Luna. You can see her on my icon.
+- 💞️ I have a cat named Luna. You can see her on my avatar.
 - 📫 How to reach me: You can send me an e-mail whenever you like.
 - ⚡ Fun fact: I'm ENFP. 
 
