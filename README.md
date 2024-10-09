@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning coding by myself.
 - 💞️ I have a cat named Luna. You can see her in my avatar.
 - 📫 How to reach me: You can send me an e-mail whenever you like.(lyy0256@outlook.com)
-- ⚡ Fun fact: I'm ENFP. 
+- ⚡ Fun fact: I'm ENFP.
+- 
  /\_/\  
 ( o.o ) 
  > ^ <
