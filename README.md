@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Yueyue (Yena) Lin
+# 👋 Hi, I’m Yueyue (Joy) Lin
 
 🎓 M.S. in Computer & Information Science @ UIUC (2026)  
 💻 Software Engineer | Backend Systems · AI Applications · Scalable Infrastructure  
